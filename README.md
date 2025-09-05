@@ -1,1 +1,0 @@
-# Projeto-Uma-miss-o-sobre-IA-Daniel-
